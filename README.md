@@ -1,0 +1,1 @@
+# Capstone-Project---Monitoreo-estructural-preventivo-en-construcciones
